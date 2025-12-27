@@ -9,8 +9,7 @@ Nothing fancy — just things that make me happy 🌸✨
 
 | Product Name | Specifications / Notes | Product Link |
 |-------------|------------------------|--------------|
-| Body Massager | — | — |
-| Head Massager | — | — |
+| **Boy-Friend** | **Male, 5'9 HEIGHT, Sunder, bug-free personality, 99.9% uptime, supports mood swings, WITH that \*** | — |
 | Ear Buds | Dual pairing, ANC | — |
 | Power Bank | Good battery backup, fast charging | — |
 | Headphones | Should look good & stylish | — |
@@ -18,7 +17,8 @@ Nothing fancy — just things that make me happy 🌸✨
 | Strawberry Dew Tinted Sunscreen SPF 50+ PA++++ | Lightweight, tinted sunscreen | [Nykaa Link](https://www.nykaa.com/dot-key-strawberry-dew-tinted-sunscreen-spf-50-pa/p/14558391?productId=14558391&pps=2&skuId=14558388) |
 | Blue Heaven Pop & Glow Tint | Natural glow, easy to apply | [Nykaa Link](https://www.nykaa.com/blue-heaven-pop-glow-blush/p/12452532?productId=12452532&pps=5&skuId=12452520) |
 | Mascara | Blackest black, long-lasting | [Nykaa Link](https://www.nykaa.com/staze-9to9-all-eyes-on-you-mascara-01-blackest-black/p/13594848?productId=13594848&pps=23) |
-
+| Body Massager | — | — |
+| Head Massager | — | — |
 ---
 
 ## 💌 Note
