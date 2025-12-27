@@ -9,7 +9,7 @@ Nothing fancy — just things that make me happy 🌸✨
 
 | Product Name | Specifications / Notes | Product Link |
 |-------------|------------------------|--------------|
-| **Boy-Friend** | **Male, 5'9 HEIGHT, Sunder, bug-free personality, 99.9% uptime, supports mood swings, WITH that \*** | — |
+| **Boy-Friend** | **Male, 5'9 HEIGHT, Sunder\*** | — |
 | Ear Buds | Dual pairing, ANC | — |
 | Power Bank | Good battery backup, fast charging | — |
 | Headphones | Should look good & stylish | — |
