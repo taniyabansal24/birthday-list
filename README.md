@@ -10,7 +10,7 @@ Nothing fancy — just things that make me happy 🌸✨
 | Product Name | Specifications / Notes | Product Link |
 |-------------|------------------------|--------------|
 | Boy-Friend | Male, 5'9 Height, Sunder\* | — |
-| Ear Buds | Dual pairing, ANC | — |
+| Ear Buds | Dual pairing, ANC | [Last option](https://www.boat-lifestyle.com/products/airdopes-supreme-long-playback-earbuds?variant=40840118468706?utm_source=Website&utm_medium=PDP&utm_campaign=Sharebutton) |
 | Power Bank | Good battery backup, fast charging | — |
 | Headphones | Should look good & stylish | — |
 | Cosmetic Products | — | — |
